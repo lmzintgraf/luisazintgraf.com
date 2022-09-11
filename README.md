@@ -1,1 +1,0 @@
-# luisazintgraf.com
